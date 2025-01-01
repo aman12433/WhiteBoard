@@ -18,4 +18,6 @@ This project is licensed under the RNTU Bhopal Licence, presented by Aman Ali
   Email id : amanali586712@gmail.com
   Instagram : https://www.instagram.com/mr_toxic_x2x/
 
+# My LinkedIn profile = https://www.linkedin.com/in/aman-ali-8b6aab219/
+
 # Email me for png images I'll send on your Email personally 
